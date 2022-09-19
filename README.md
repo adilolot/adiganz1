@@ -1,1 +1,0 @@
-# adiganz1
